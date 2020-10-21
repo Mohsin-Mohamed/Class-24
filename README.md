@@ -1,0 +1,2 @@
+# Class-24
+This is class 24, ALSO BE SURE TO USE 200 OK SERVER. *ITS FREE!*
